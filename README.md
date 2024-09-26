@@ -1,5 +1,5 @@
 # 💫 About Me:
-B.Tech | CS & Business Systems Freelance Developer | Flutter & Android Open to collaboration and learning
+B.Tech | CS & Business Systems | Freelance Developer | Flutter & Android Open to collaboration and learning
 
 
 ## 🌐 Socials:
